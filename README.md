@@ -1,0 +1,2 @@
+# parabolakudigitall
+matematika
